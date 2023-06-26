@@ -13,11 +13,11 @@ Telegram : https://t.me/spoof0x
 
 ✅Bypass Redmi Avast Security
 
-Direct Buy shop : https://0xzero.mysellix.io/product/641c70bd7e4e6
+Direct Buy shop : https://ZeroShoping.sellix.io/product/6494843fdc503
 
 Join Group : https://t.me/joinchat/rr9i5chOVIw3YTM0
 
-My Shop : https://0xzero.mysellix.io
+My Shop : https://zeroshoping.mysellix.io
 
 Contact Detalis:
 
